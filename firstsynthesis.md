@@ -39,12 +39,12 @@ Crucially, Millon always shows **which of the six boxes (Pleasure, Pain, Active,
 
 ## 2. Where Trauma and Dissociation Enter the Picture
 
-You’ve already hinted at two “missing pieces” in Millon’s published work:
+We’ve already hinted at two “missing pieces” in Millon’s published work:
 
 1. **Trauma as a Causal (or Exacerbating) Force**
 2. **Dissociative Experiences (DID, structural splits) as a Natural “Structural Pathology”**
 
-Below I try to show how those dovetail with Millon’s framework—and why, in your dissertation, you see DID (and trauma‐related dissociation more broadly) as the “ultimate collapse” or “highest disturbance” of these polarities.
+Below I try to show how those dovetail with Millon’s framework and why we see DID (and trauma‐related dissociation more broadly) as the “ultimate collapse” or “highest disturbance” of these polarities.
 
 ### 2.1. Trauma → “Shift” in How the Polarities Get Organized
 

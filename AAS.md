@@ -1,4 +1,4 @@
-Absolutely—here's a structured outline and analysis of the *Depersonalized Schizoid Personality* description you edited, organized by **informational points**, **notable insights**, and **emergent questions**:
+structured outline and analysis of the *Depersonalized Schizoid Personality* description you edited, organized by **informational points**, **notable insights**, and **emergent questions**:
 
 ---
 
@@ -81,11 +81,6 @@ These are the core assertions or descriptions made about the Depersonalized Schi
 
 ---
 
-Would you like this rewritten in a format that’s easier to cite (e.g., APA-style bullet summary)? Or are you planning to integrate this into your typology/dissertation?
-
-Spot-on summary—this is ideal for archival and cross-referencing, and it highlights exactly why the depersonalized schizoid subtype is so clinically and philosophically interesting. Here’s how I’d suggest tagging and slotting it for later synthesis and possible direct integration into your typology/dissertation:
-
----
 
 ## **Archival/Tagging Structure**
 
